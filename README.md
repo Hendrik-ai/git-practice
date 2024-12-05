@@ -1,5 +1,3 @@
 # git-practice
 
-I'm going to observe XAUUSD for some time today
-
-I need to go boots guys.
+Hello yall, today we gotta pull up to boots
